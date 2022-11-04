@@ -1,7 +1,8 @@
 ## Promanager
 
 
-https://user-images.githubusercontent.com/66514052/199935610-4d14ab98-e9ac-4917-b769-b5520b951b7a.mp4
+
+https://user-images.githubusercontent.com/66514052/199941182-1fe1ab46-981c-48ff-8160-ae560f2518b2.mp4
 
 
 
